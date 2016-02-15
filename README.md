@@ -11,4 +11,4 @@
 
 - Create a learing outline that can be reveiw by mentor or peer to help keep you on track.
 - Keep focus and moving forward.
-- Be sure to keep yoursefl healthy and active as you learn. Get plenty of sleep, eat healthy and exercise.
+- Be sure to keep yourself healthy and active as you learn. Get plenty of sleep, eat healthy and exercise.
